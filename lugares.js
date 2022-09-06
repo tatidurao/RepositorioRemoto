@@ -1,0 +1,1 @@
+//parque, escola, casa
